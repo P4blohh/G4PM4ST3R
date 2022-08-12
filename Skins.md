@@ -26,3 +26,6 @@
 
 # [Lewa edit](https://b4sedskins.s-ul.eu/TvHroIK3)
 ![](https://osu.ppy.sh/ss/18047088/b1ab)
+
+# [Gookie](https://b4sedskins.s-ul.eu/v8jpSN0w)
+![](https://osu.ppy.sh/ss/18047104/fc9b)
