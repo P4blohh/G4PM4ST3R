@@ -24,3 +24,5 @@
 # [Oddskin](https://b4sedskins.s-ul.eu/LyYEWOAd)
 ![](https://osu.ppy.sh/ss/18047086/f4f7)
 
+# [Lewa edit](https://b4sedskins.s-ul.eu/TvHroIK3)
+![](https://osu.ppy.sh/ss/18047088/b1ab)
