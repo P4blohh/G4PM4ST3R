@@ -20,3 +20,7 @@
 
 # [Vaxei Edit](https://b4sedskins.s-ul.eu/5FgchrgW)
 ![](https://osu.ppy.sh/ss/18047074/6ee0)
+
+# [Oddskin](https://b4sedskins.s-ul.eu/LyYEWOAd)
+![](https://osu.ppy.sh/ss/18047086/f4f7)
+
